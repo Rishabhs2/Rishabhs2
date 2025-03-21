@@ -38,6 +38,8 @@
 ------
 
 Insta - -rishabh.sahu_( https://www.instagram.com/__rishabh.sahu__?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw== )
-linkdin-  www.linkedin.com/in/rishabh-sahu-
+linkdin-  www.linkedin.com/in/rishabh-sahu-b8833322a
+
+
 
 
